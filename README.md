@@ -1,1 +1,2 @@
-# lacultura-privacy-policy
+
+Privacy Policy
